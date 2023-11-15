@@ -1,1 +1,1 @@
-# final-project-1-kel6
+Pages About Us dirancang oleh Dimas Permadi
